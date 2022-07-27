@@ -8,5 +8,5 @@ I'm an equestrian and devleoper looking to improve my skills by challenging myse
 - 📫 How to reach me ... Twitter
 
 I ride professionally and own two thoroughbreds. 
-🐴: Two Scoops Of Funk Juice
-🐎: Dr. Funkenstein
+- 🐴: Two Scoops Of Funk Juice
+- 🐎: Dr. Funkenstein
